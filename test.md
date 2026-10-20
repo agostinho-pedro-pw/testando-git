@@ -1,0 +1,1 @@
+Está tudo em jogo meu camarada.
